@@ -10,9 +10,12 @@ tags:
 
 - 🧠 Why?
 - To get a Proper lifestyle and confidence
+
 - 🎯 SMART Goal
+ 
 - Lose Fat and Increase core Strength and flexiblity
 - Proper Grooming
+ 
 - ⚛️ Habit?
 - Consistent workout plans 
 - Diet plans
